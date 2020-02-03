@@ -16,6 +16,4 @@ ahfbwajhbfeekjfekjlkjefnwaljvblkjwabfeliwajef;iwabfe?KW eflwahbefWelf
 ahfbwajhbfeekjfekjlkjefnwaljvblkjwabfeliwajef;iwabfe?KW eflwahbefWelf 
 
 ## WEBSITE
-
-
-hejelkafkjwbefkKW eflwahbefWelf 
+1.  INDEX.HTML
